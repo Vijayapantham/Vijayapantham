@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Vijayapantham
-- 👀 I’m interested in Engineering feild where i can create powerful and efficient devices that can do amazing things like solving problems, playing games, and connecting people worldwide. 
+- 👀 I’m interested in Engineering field where i can create powerful and efficient devices that can do amazing things like solving problems, playing games, and connecting people worldwide. 
 - 🌱 I’m young and hard working engineer who work hard and learn new technologies. Tech Enthusiast!
 - 💞️ I’m looking to collaborate on ...
 - 📫 You can reach me on linkedln:www.linkedin.com/in/vijaya-durga-pantham-234684246
